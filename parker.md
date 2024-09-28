@@ -1,0 +1,1 @@
+<Power, responsobility, etc>
